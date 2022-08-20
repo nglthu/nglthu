@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-
+```
 
 🔭 I’m currently working on simple but elegant mobile and web apps
 🌱 I’m currently learning Everything I like
@@ -10,4 +10,6 @@
 📫 How to reach me: On the Air for Everything
 😄 Pronouns: Me
 ⚡ Fun fact: Know Something for Something
+
+```
 
