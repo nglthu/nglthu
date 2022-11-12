@@ -9,6 +9,6 @@
 💬 Ask me about Things I know
 📫 How to reach me: On the Air for Everything
 😄 Pronouns: Me
-⚡ Fun fact: Mention only what she knows
+⚡ Fun fact: Mention only what I know based on the truth.
 ```
 💡 Facts: <a href="https://www.linkedin.com/newsletters/6981721349257924608/" alt="Some facts about Me in New Zealand"> Some facts about Me in New Zealand</a>
