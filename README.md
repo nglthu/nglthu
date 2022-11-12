@@ -9,7 +9,7 @@
 💬 Ask me about Things I know
 📫 How to reach me: On the Air for Everything
 😄 Pronouns: Me
-⚡ Fun fact: Know Something for Something
+⚡ Fun fact: [Some facts about Me in New Zealand](https://www.linkedin.com/newsletters/6981721349257924608/)
 
 ```
 
