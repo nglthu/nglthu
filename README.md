@@ -15,3 +15,4 @@
 
 <!--https://www.linkedin.com/pulse/high-standard-healthcare-new-zealand-nz-example-action-lethu-nguyen/-->
 <!--https://www.linkedin.com/newsletters/6981721349257924608/-->
+<!--Subscribe on LinkedIn https://www.linkedin.com/build-relation/newsletter-follow?entityUrn=6981721349257924608-->
