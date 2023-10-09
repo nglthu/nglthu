@@ -11,7 +11,7 @@
 😄 Pronouns: Me
 ⚡ Fun fact: Mention only what I know based on the truth.
 ```
-💡 Facts: <a href="https://www.linkedin.com/in/lethunguyen/?originalSubdomain=nz"> Some facts about Me in New Zealand</a>
+💡 Facts: <a href="https://www.linkedin.com/newsletters/6981721349257924608/"> Some facts about Me in New Zealand</a>
 
 <!--https://www.linkedin.com/pulse/high-standard-healthcare-new-zealand-nz-example-action-lethu-nguyen/-->
 <!--https://www.linkedin.com/newsletters/6981721349257924608/-->
