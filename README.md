@@ -4,19 +4,19 @@
 
 ```
 
-🔭 I’m currently working on simple but elegant mobile and web apps
-🌱 I’m currently learning Everything I like
-👯 I’m looking to collaborate on trustable People
-🤔 I’m looking for help with developer Forums
+🔭 I like singing, guitar, and piano no matter what my levels are.
+🌱 Gardening is my favourite but I forget as such I like
+👯 I like beach that I just have discovered recently that I can survive on the sea
+🤔 Help if I can but being fair
 💬 Ask me about Things I know
-📫 How to reach me: On the Air for Everything
-😄 Pronouns: Me
-⚡ Fun fact: Mention only what I know based on the truth.
+📫 How to reach me: On the Air for Everything as I fly so high and far
+😄 Pronouns: Me as Lethu
+⚡ Fun fact: Space is my favourite.
 
 ```
 [▶• ılıılıılılııılıılı. 0](https://youtube.com/playlist?list=PLAFOVS3Aa3Au2aNCITS1utqxMN29C3xRP&si=25RkSt4VKkTWnoJc)
 
-💡 Facts: <a href="https://www.linkedin.com/newsletters/6981721349257924608/"> Some facts about Me in New Zealand</a>
+💡 Facts: <a href="https://www.linkedin.com/newsletters/6981721349257924608/"> I love Vietnam and hate crimes. Crimes Reporter is Me !</a>
 
 <!--https://www.linkedin.com/pulse/high-standard-healthcare-new-zealand-nz-example-action-lethu-nguyen/-->
 <!--https://www.linkedin.com/newsletters/6981721349257924608/-->
