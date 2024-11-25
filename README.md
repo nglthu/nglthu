@@ -16,7 +16,7 @@
 ```
 [▶• ılıılıılılııılıılı. 0▶• ılıılıılılııılıılı. 0▶• ılıılıılılııılıılı. 0▶• ılıılıılılııılıılı. 0▶• ılıılıılılııılıılı. 0▶• ılıılıılılııılıılı. 0](https://youtube.com/playlist?list=PLAFOVS3Aa3Au2aNCITS1utqxMN29C3xRP&si=25RkSt4VKkTWnoJc)
 
-💡 Facts: <a href="https://www.linkedin.com/newsletters/6981721349257924608/"> I love Vietnam and hate crimes. I am in Cybercrimes and Security, so don't be surprise about my Crimes Reports !</a>
+💡 Facts: <a href="https://www.linkedin.com/newsletters/6981721349257924608/"> I love Vietnam and hate crimes. I am in Cybercrimes and Security and being a Good New Zealander so don't be surprise about my Crimes Reports in New Zealand !</a>
 
 <!--https://www.linkedin.com/pulse/high-standard-healthcare-new-zealand-nz-example-action-lethu-nguyen/-->
 <!--https://www.linkedin.com/newsletters/6981721349257924608/-->
