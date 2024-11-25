@@ -22,3 +22,6 @@
 <!--https://www.linkedin.com/newsletters/6981721349257924608/-->
 <!--Subscribe on LinkedIn https://www.linkedin.com/build-relation/newsletter-follow?entityUrn=6981721349257924608-->
 <!--https://www.linkedin.com/in/lethunguyen/?originalSubdomain=nz-->
+💡 Scan Me :
+
+<img src='ORCID.png' width = 20%>
