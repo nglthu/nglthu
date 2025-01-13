@@ -11,7 +11,7 @@
 💬 Ask me about Things I know
 📫 How to reach me: On the Air for Everything as I fly so high and far
 😄 Pronouns: Me as Lethu
-⚡ Fun fact: Space is my favourite including codespaces, and the real space of my life. 
+⚡ Fun fact: Space is my favourite including codespaces, and the real space of my life that hardly you can be experienced !!
 
 ```
 [▶• ılıılıılılııılıılı. 0▶• ılıılıılılııılıılı. 0▶• ılıılıılılııılıılı. 0▶• ılıılıılılııılıılı. 0▶• ılıılıılılııılıılı. 0▶• ılıılıılılııılıılı. 0](https://youtube.com/playlist?list=PLAFOVS3Aa3Au2aNCITS1utqxMN29C3xRP&si=25RkSt4VKkTWnoJc)
