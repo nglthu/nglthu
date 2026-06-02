@@ -2,6 +2,8 @@
 
 ### Hi there 👋
 
+Lethu's work are all virtual and her plays are real. 
+Her slogan : Virtuality in work and reality in playing.
 ```
 
 🔭 I like singing, playing guitar and piano no matter what my levels are.
